@@ -1,1 +1,1 @@
-A M3rbl Run is a 3D designed marble rollercoaster designed on Onshape! This wild ride consists of obstacles, twists and turns, and drops to elevate the fun!
+A M3rbl Run is a 3D designed marble rollercoaster designed on Onshape, a CAD visual design that is absolutely beginner-friendly! Besides the classic tracks, this custom-built wonder consists of obstacles, twists and turns, and drops to elevate the fun!
